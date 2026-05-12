@@ -1,4 +1,4 @@
-# 
+# CleanMyMac X for macOS elite Script: secure-storage & ad-blocker is the best CleanMyMac X for macOS script, featuring secure-storage and ad-blocker. Secure, efficient, and
 
 
 
